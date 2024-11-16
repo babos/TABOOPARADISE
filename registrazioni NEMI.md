@@ -36,7 +36,7 @@
 
 ---
 
-### **Sweetest Taboo**
+### **Hang On To Your Love**
 | Tipologia         | Dettagli                                                                            |
 |-------------------|--------------------------------------------------------------------------------------|
 | **Audio**         | Brano esclusivamente audio, senza riprese video per i dettagli strumentali.         |
